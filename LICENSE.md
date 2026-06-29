@@ -1,4 +1,4 @@
-# 
+# Exclusif CorelDRAW plugins pour Mac OS | Intelligent CorelDRAW plugins pour PC Windows. Avec pot de peinture et outil dégradé — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
